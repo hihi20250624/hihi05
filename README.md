@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://aw1-22.pages.dev/">暗网社区</a>
 
-点击访问：<a href="https://dy1-22.pages.dev//">抖音成人版</a>
+点击访问：<a href="https://dy1-22.pages.dev/">抖音成人版</a>
 
 点击访问：<a href="https://dy2-22.pages.dev/">91抖音成年版官网</a>
 
